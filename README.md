@@ -1,1 +1,0 @@
-# rimantasrickus.github.io
